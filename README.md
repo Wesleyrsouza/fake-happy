@@ -1,2 +1,2 @@
 # fake-happy
- Página da banda
+ Página da banda Fake Happy cover de Paramore
